@@ -10,3 +10,6 @@
 
 ### Ajustes
 ![Grid](https://i.imgur.com/rr2FE4h.png)
+
+
+Mitm in dev join the ds https://discord.gg/d2QXp2zba
